@@ -1,3 +1,12 @@
+Fork of gpt-pilot
+APP made for PRO use only
+To use When you tux outside
+
+
+___________________________________
+EU.MEC.EU wafu-wafu ( @caisse de bruck )
+mekua-meke-suku SAV@dir.eu
+____________________________________
 <br><br><br>
 
 <div align="center">
